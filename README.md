@@ -1,2 +1,0 @@
-# brian.tec
-paginaoficialdebriantecnologic
